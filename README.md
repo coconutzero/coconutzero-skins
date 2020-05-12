@@ -20,14 +20,14 @@ all of my main skins/edits
 # [- owotuna hddt -](https://drive.google.com/open?id=1EQs7nhnXa1LPE2E5q8X5eTZX1uq6oczk)
 ![]
 
-# [- fateprisma chloe tranquil sublimity  -]()
+# [- fateprisma chloe tranquil sublimity  -](https://drive.google.com/open?id=1SfOlBDhjGw27WOYvbpA9ZrJ06-q7qJp4)
 ![]
 
-# [- fateprisma chloe whitecatCK  -]()
+# [- fateprisma chloe whitecatCK  -](https://drive.google.com/open?id=1dZqTDXVgtrq3CelWGE9IkD7XTR3Gjq9j)
 ![]
 
-# [- tranquil sublimity edit -]()
-![] (https://imgur.com/xHdlPkU)
+# [- tranquil sublimity edit -](https://drive.google.com/open?id=1pfQSGp_Ax0-rAO1Xp7E_gWSlxNrykB4p)
+![](https://imgur.com/AE9nsBt.jpg)
 
 
 
