@@ -38,6 +38,9 @@ all of my main skins/edits
 # [- 404anf cursor edit-](https://drive.google.com/open?id=1OkBFsXlkBdmP2Y6ZJlyfdJEdOsOSRQH9)
 ![](https://imgur.com/q0aQ5pN.jpg)
 
+# [- marnie beep edit-](https://drive.google.com/open?id=17vhz01QMfhTtEGguM9Fjj8sL1iQ92mLv)
+![](https://imgur.com/8VtuFPL.jpg)
+
 
 
 
