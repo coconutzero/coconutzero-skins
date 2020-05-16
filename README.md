@@ -32,6 +32,16 @@ all of my main skins/edits
 # [- tranquil sublimity edit -](https://drive.google.com/open?id=1pfQSGp_Ax0-rAO1Xp7E_gWSlxNrykB4p)
 ![](https://imgur.com/AE9nsBt.jpg)
 
+# [- # pixel atmosphere -](https://drive.google.com/open?id=1AaWtMmhu-XUwH6u7a3q0JoY8lLWS_Czi)
+![](https://imgur.com/s52dRVb.jpg)
+
+# [- 404anf cursor edit-](https://drive.google.com/open?id=1OkBFsXlkBdmP2Y6ZJlyfdJEdOsOSRQH9)
+![](https://imgur.com/q0aQ5pN.jpg)
+
+
+
+
+
 
 
 
