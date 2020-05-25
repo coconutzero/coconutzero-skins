@@ -5,6 +5,9 @@ all of my main skins/edits
 # [- owotuna azr8dawn/tranquil sublimity -](https://drive.google.com/open?id=1fjnH2hA6GUGCm-W8CNT8m8ZmdIGRdWqj)
 ![](https://imgur.com/OPdhegI.jpg)
 
+# [- owotuna azr8dawn/tranquil sublimity alt cursor -](https://drive.google.com/open?id=1QFRBZdxq0ji5ZwqC3ARdyBpQqFxOistc)
+![](https://imgur.com/yWBG2hv.jpg)
+
 # [- owotuna beep -](https://drive.google.com/open?id=1A8PMX58gVdqgn5-uOUqhFfyQHg6s_3W9)
 ![](https://imgur.com/StjTqL7.jpg)
 
