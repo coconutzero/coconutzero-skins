@@ -3,7 +3,7 @@
 all of my main skins/edits 
 
 # [- preview of song select with my tuna edit-]
-![](https://imgur.com/By9L2eG.jpg)
+![](https://imgur.com/Q7EB4tv.jpg)
 
 # [- owotuna whitecatCK purple-](https://drive.google.com/file/d/1Z5H23pfeBQPlzMNnr-l7KmYE4karIQpI/view?usp=sharing)
 ![](https://imgur.com/oHxqzZS.jpg)
