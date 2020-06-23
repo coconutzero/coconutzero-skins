@@ -2,6 +2,12 @@
 
 all of my main skins/edits 
 
+# [- owotuna whitecatCK purple-](https://drive.google.com/file/d/1Z5H23pfeBQPlzMNnr-l7KmYE4karIQpI/view?usp=sharing)
+![](https://imgur.com/oHxqzZS.jpg)
+
+# [- owotuna azr8dawn/tranquil sublimity p-](https://drive.google.com/file/d/1u4_vtGw6lm2ZMf0bjPxoPIBq4yZsoeed/view?usp=sharing)
+![](https://imgur.com/0ZPzU9j.jpg)
+
 # [- owotuna azr8dawn/tranquil sublimity -](https://drive.google.com/open?id=1fjnH2hA6GUGCm-W8CNT8m8ZmdIGRdWqj)
 ![](https://imgur.com/OPdhegI.jpg)
 
@@ -25,12 +31,6 @@ all of my main skins/edits
 
 # [- owotuna hddt -](https://drive.google.com/open?id=1St7qriJOHeHe7fBc5ucJFbZtPP1glq85)
 ![](https://imgur.com/yAWyRJk.jpg)
-
-# [- fateprisma chloe tranquil sublimity  -](https://drive.google.com/open?id=1SfOlBDhjGw27WOYvbpA9ZrJ06-q7qJp4)
-![](https://imgur.com/mHP718v.jpg)
-
-# [- fateprisma chloe whitecatCK  -](https://drive.google.com/open?id=1dZqTDXVgtrq3CelWGE9IkD7XTR3Gjq9j)
-![](https://imgur.com/BeH66D7.jpg)
 
 # [- tranquil sublimity edit -](https://drive.google.com/open?id=1pfQSGp_Ax0-rAO1Xp7E_gWSlxNrykB4p)
 ![](https://imgur.com/AE9nsBt.jpg)
