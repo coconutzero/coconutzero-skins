@@ -2,8 +2,17 @@
 
 all of my main skins/edits 
 
+# [- preview of song select with my tuna edit-]
+![](https://imgur.com/By9L2eG.jpg)
+
 # [- owotuna whitecatCK purple-](https://drive.google.com/file/d/1Z5H23pfeBQPlzMNnr-l7KmYE4karIQpI/view?usp=sharing)
 ![](https://imgur.com/oHxqzZS.jpg)
+
+# [- owotuna yugen purple-](https://drive.google.com/file/d/1STghdCG-mezr75Bn7S9FU37_kWXw4OSX/view?usp=sharing)
+![](https://imgur.com/asmF4QF.jpg)
+
+# [- owotuna mixed hddt purple-](https://drive.google.com/file/d/1sJb3OLjsWGsm0ao4_FdV7jumyPzSAVrF/view?usp=sharing)
+![](https://imgur.com/3dpV6v6.jpg)
 
 # [- owotuna azr8dawn/tranquil sublimity p-](https://drive.google.com/file/d/1u4_vtGw6lm2ZMf0bjPxoPIBq4yZsoeed/view?usp=sharing)
 ![](https://imgur.com/0ZPzU9j.jpg)
