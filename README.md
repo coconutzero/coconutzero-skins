@@ -2,8 +2,8 @@
 
 all of my main skins/edits 
 
-# [- preview of song select with my tuna edit-]
-![](https://imgur.com/Q7EB4tv.jpg)
+# [- owotuna freddi-fami-aireu -](https://drive.google.com/file/d/1EdzcIUy_PQD1WQn9haaL6NOTowmnLAtj/view?usp=sharing)
+![](https://imgur.com/ZzqbXT2.jpg)
 
 # [- owotuna whitecatCK purple-](https://drive.google.com/file/d/1Z5H23pfeBQPlzMNnr-l7KmYE4karIQpI/view?usp=sharing)
 ![](https://imgur.com/oHxqzZS.jpg)
